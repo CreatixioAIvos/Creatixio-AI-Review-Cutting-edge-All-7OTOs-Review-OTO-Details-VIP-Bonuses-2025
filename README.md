@@ -4,6 +4,87 @@
 <p class="" data-start="476" data-end="497"><strong data-start="476" data-end="497">Enough is enough.</strong></p>
 <p class="" data-start="499" data-end="792">This is where <strong data-start="513" data-end="529">Creatixio AI</strong> steps in and flips the script. This isn’t just another design app—it’s your <em data-start="606" data-end="651">personal AI-powered design agency in a box.</em> If you’re tired of wasting time, energy, and money on mediocre results, buckle up. Because once you try Creatixio AI, you’re not going back.</p>
 
+# 🎨 Creatixio AI – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below. All bonuses are delivered only when you use the affiliate link and follow the steps below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/f3jrlnc/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🧩 Front End (FE): Creatixio AI  
+🚀 Next-Gen AI App for Smart Content, Image, & Video Creation  
+👉 Link:  
+`warriorplus[dot]com/o2/a/f3jrlnc/0/g`
+
+---
+
+## 🚀 OTO 1: Creatixio AI Pro  
+⚙️ Unlock Pro-Level AI Features and Templates  
+👉 `creativio[dot]live/pro/`  
+💸 **$5 Discount Auto-Applied**
+
+---
+
+## 🔓 OTO 2: Creatixio AI Unlimited  
+📈 Remove All Limits on Usage and Generation  
+👉 `creativio[dot]live/unlimited`  
+💸 **$5 Discount Auto-Applied**
+
+---
+
+## 💼 OTO 3: Creatixio AI Bundle  
+🎁 Get Full Bundle Access to All Upgrades in One  
+👉 `creativio[dot]live/bundle/`  
+💸 **$5 Discount Auto-Applied**
+
+---
+
+## 🏷️ OTO 4: Creatixio AI Whitelabel  
+🧾 Rebrand Creatixio as Your Own AI Software  
+👉 `creativio[dot]live/whitelabel/`  
+💸 **$50 Discount Auto-Applied**
+
+---
+
+## 👥 OTO 5: Creatixio AI Agency  
+🏢 Sell AI Content Services Under Your Brand  
+👉 `creativio[dot]live/agency/`  
+💸 **$50 Discount Auto-Applied**
+
+---
+
+## 🔁 OTO 6: Creatixio AI Franchise  
+🧩 Full Business-in-a-Box With Resell Rights  
+👉 `creativio[dot]live/franchise/`  
+💸 **$20 Discount Auto-Applied**
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/creatixio-ai/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Instant Access:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **Creatixio AI** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Don’t forget to confirm Step 2 via email!
+
+---
 
 <hr class="" data-start="794" data-end="797" />
 
@@ -136,3 +217,84 @@
 <p class="" data-start="6169" data-end="6286">Don’t overthink it. Click the button. Grab your license. Use the discount code. And start designing like a pro today.</p>
 <p class="" data-start="6288" data-end="6393">Because when your brand looks better, <em data-start="6326" data-end="6338">everything</em> gets better—your traffic, your engagement, your sales.</p>
 <p class="" data-start="6395" data-end="6460">🎯 <strong data-start="6398" data-end="6460">Buy Creatixio AI now and never struggle with design again.</strong></p>
+# 🎨 Creatixio AI – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below. All bonuses are delivered only when you use the affiliate link and follow the steps below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/f3jrlnc/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🧩 Front End (FE): Creatixio AI  
+🚀 Next-Gen AI App for Smart Content, Image, & Video Creation  
+👉 Link:  
+`warriorplus[dot]com/o2/a/f3jrlnc/0/g`
+
+---
+
+## 🚀 OTO 1: Creatixio AI Pro  
+⚙️ Unlock Pro-Level AI Features and Templates  
+👉 `creativio[dot]live/pro/`  
+💸 **$5 Discount Auto-Applied**
+
+---
+
+## 🔓 OTO 2: Creatixio AI Unlimited  
+📈 Remove All Limits on Usage and Generation  
+👉 `creativio[dot]live/unlimited`  
+💸 **$5 Discount Auto-Applied**
+
+---
+
+## 💼 OTO 3: Creatixio AI Bundle  
+🎁 Get Full Bundle Access to All Upgrades in One  
+👉 `creativio[dot]live/bundle/`  
+💸 **$5 Discount Auto-Applied**
+
+---
+
+## 🏷️ OTO 4: Creatixio AI Whitelabel  
+🧾 Rebrand Creatixio as Your Own AI Software  
+👉 `creativio[dot]live/whitelabel/`  
+💸 **$50 Discount Auto-Applied**
+
+---
+
+## 👥 OTO 5: Creatixio AI Agency  
+🏢 Sell AI Content Services Under Your Brand  
+👉 `creativio[dot]live/agency/`  
+💸 **$50 Discount Auto-Applied**
+
+---
+
+## 🔁 OTO 6: Creatixio AI Franchise  
+🧩 Full Business-in-a-Box With Resell Rights  
+👉 `creativio[dot]live/franchise/`  
+💸 **$20 Discount Auto-Applied**
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/creatixio-ai/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Instant Access:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **Creatixio AI** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Don’t forget to confirm Step 2 via email!
+
+---
